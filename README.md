@@ -40,7 +40,7 @@ Contributions, feedback, and suggestions are warmly welcomed! Feel free to open 
 
 ## 📅 What's Next?
 
-Stay tuned as Atlantic Sunrise continues to embark on new ICP projects, sharing insights, discoveries, and innovations along the way!
+Stay tuned as I continue to embark on new ICP projects, sharing insights, discoveries, and innovations along the way!
 
 ---
 
